@@ -13,7 +13,7 @@
 ![지구를-지켜조_PPT_최적화-12](https://user-images.githubusercontent.com/119375302/223433206-c8b07264-e27f-4690-b2f5-dc17fef6c3d5.jpg)
 ![지구를-지켜조_PPT_최적화-13](https://user-images.githubusercontent.com/119375302/223433210-ecf67ad4-a280-454c-8d34-91171535e21f.jpg)
 ![지구를-지켜조_PPT_최적화-14](https://user-images.githubusercontent.com/119375302/223433214-2d7b68d9-df3c-4535-89d3-2a957d825a23.jpg)
-![지구를-지켜조_PPT_최적화-15](https://user-images.githubusercontent.com/119375302/223433216-980fb030-d78f-4fc2-b29c-3f375fa1c6c8.jpg)
+<!-- ![지구를-지켜조_PPT_최적화-15](https://user-images.githubusercontent.com/119375302/223433216-980fb030-d78f-4fc2-b29c-3f375fa1c6c8.jpg) -->
 ![지구를-지켜조_PPT_최적화-16](https://user-images.githubusercontent.com/119375302/223433219-e410e4f2-31cb-474d-b344-1f89865b2233.jpg)
 ![지구를-지켜조_PPT_최적화-17](https://user-images.githubusercontent.com/119375302/223433220-44f64b9b-e68a-4778-b24f-c745bb348be3.jpg)
 ![지구를-지켜조_PPT_최적화-18](https://user-images.githubusercontent.com/119375302/223433221-66de4599-02ae-46e5-a326-d7e081201cab.jpg)
